@@ -1,0 +1,26 @@
+# DEDELER - NENELER
+
+Annemin baba tarafı Giresun, Merkez Ayvasıl köyünden, Hamzabaş sülalesinden. Annemin babasının adı Abdullah. Gözleri görmüyor ya da çok çok az görüyormuş. Büyüklerimizin anlattığına göre, gözlerinin görmemesini gurur meselesi yapmış, köyü ve ailesini terkedip gitmiş. Bir daha kendisinden haber alınamamış. İki sene önce, oğlum Ogün’ün internetten elde ettiği soy ağacında Abdullah dedenin 1943’te öldüğü kayıtlı ama nerede, nasıl öldüğü, mezarının nerede olduğuna dair hiçbir bilgimiz yok maalesef.
+
+Annemin annesi yani büyükannem Rukiye, Meliha teyzemlerle birlikte yaşıyordu. Evlerimiz çok yakın olduğu için büyükannemi hemen her gün görürdük. O bizi, biz de onu çok severdik. 1969 yılında İstanbul’a taşınırken büyükannem de bizimle gelmiş, bir kaç ay bizde kalmıştı. Köye döndükten kısa bir süre sonra (1970) ölmüş olduğunu, Emine teyzemin kocası Temel eniştenin mektubu ile öğrenmiştik. Griptim, hastaydım ve yatıyordum mektup geldiğinde. Çok üzüldüm, çok ağladım büyükannem için. Ağlarken bir tuhaf koku duyuyordum. Daha sonraki yıllarda da, grip rahatsızlıklarımda bu kokuyu hep duydum ve hep büyükannemi hatırlattı ve ölüm kokusu duygusu verdi bana bu koku.
+
+Baba tarafından dedem de Abdullah, nenem Hatice Işık yalnız yaşayan iki yaşlı insan. Aslında yalnız demek doğru sayılmaz, çünkü Fatma halamın ilk çocuğu, büyük kızı Rafet ablam dedemlerle yaşıyor. Kendimi bildiğim çocukluğumun ilk yıllarında Rafet ablamı dedemlerin kızı olarak biliyordum. Fatma halam, kocası İlyas eniştem iki yaşlı insana el ayak olsun diye Rafet ablamı, en yakın komşuları olan dedemlere bırakmışlardı.
+
+Kendi hallerinde iki yaşlı insandı dedemle nenem. Dedem köyde tek arıcılık yapan insandı. Hem dedem, hem de nenem Kayadibi mezarlığında yatıyorlar şimdi. Tüm büyüklerimize rahmet diliyorum. Mekanları cennet olsun inşallah.
+
+Fatma halamların evinin karşı yakasında çayırlık var. Rafet ablam, halamın görümcesi Hanife ablam inek yaymaya (otlatmaya) gitmişiz. Onlar büyük 14-15 yaşlarında olmalı, ben herhalde 6-7 yaşlarımdayım. Durup durup bana türkü söylettiriyorlar. İlle de Nurettin Çamlıdağ’ın türküsünü söylettiriyorlar.
+
+Çıkrık ince tel ince
+Nolur bize gelince
+Kız imanından mı gider
+Bir kerecik görünce
+
+Kendileri de gülüp eğleniyorlar. O yıllarda da bu türkü moda. Hemen her gün radyoda Nurettin Çamlıdağ ve bu türkü. Ablamlar seviyorlar diye ben de öyle içten söylüyorum ki ama ne olduysa Hanife abla kızdı birden. Bana bağırmaya başladı. “Terbiyesiz, utanmıyor musun?” gibi laflar söyledi. Şaşırdım, afalladım, neden bilmiyorum ama utandım. Çayırın ortasında merek vardı. Gittim mereğin üstüne çıktım. Arka cepheye, hartamaların üzerine yatıp ağlamaya başladım. Bir iki saat sonra, “Oğlum şaka yaptık, in hadi.” diyerek yalvar yakar zor indirdiler beni çatıdan.
+
+Fatma halamların (Kalafatların) evleri çok eski ve küçüktü. Nüfus kalabalık. Çoluk çocuk 10-11 kişi. Yeni bir ev yaptırıyorlar 200 metre beriye, mısır tarlasının başına. Evi dedem yapıyor. Ahır, üstüne odalar bitmiş, çatı arasında çalışma devam ediyor. Ben de halamın oğlu, akranım Hasan’la takılıyoruz dedemin yanında. Bir aralık, dedemin rendesini almışım, bir şeyler rendeliyorum aklımca. Bunu gören dedem kızdı bana, gelip elimden rendeyi aldığı gibi bir de tokat vurdu yanağıma. Dedemden hiç beklemediğim bu tepki çok gücüme gitti. Ağlamadım ama çok üzülmüştüm. Zamanla unuttum gitti.
+
+Dayak bir eğitim aracı olduğu kadar, çok da sosyal ve doğal bir davranıştı o zamanlar. Büyük küçüğü, hoca öğrenciyi, koca karıyı, güçlü güçsüzü, zengin fakiri döver, söver, sömürür ya da ezer. Bugünün çok farklı olduğunu, beşeri ilişkilerin çok daha medeni ve hümanist olduğunu iddia edebilir miyiz?
+
+Köydeki Fatma halam ve Camili (Yoma) köyünde evli Makbule halamın dışında iki de amcam vardı. Mustafa ve İsmet. Amcamları köyden hiç hatırlamıyorum. İkisi de yıllar önce İstanbul’a taşınmışlar. En küçükleri olan İsmet amcam hiç köye, memlekete gelmezdi ama Mustafa amcamların yaz aylarında çoluk çocuk köye geldiklerini hatırlıyorum. Dedemlerin evinde amcamın kızı Meral abla ile oyun oynadığımızı hatırlıyorum.
+
+Sanıyorum son gelişlerinde Mustafa amcam dedemlere odun kesmeye gitmiş dere kıyısına. Gitmiş ama korkmuş. Çabucak dönüp gelmiş. Kendisi anlatmıştı. Onlar İstanbul’a döndükten sonra arkasından çok konuşulmuş, çok gülünmüştü Mustafa amcamın. Yıllar sonra 2019’da köye gittiğimde abim “hadi dereye balık tutmaya gidelim” dedi. Gittik. Tüfek de yanımızda ama Mustafa amcama çok hak verdim. Boşuna günahını almışız amcamın. Hele de Bekiraan Hasan’ın ayı ve domuz hikayelerinden sonra tüfek bile rahatlatmıyor insanın içini. Hele yılan hikayeleri. Meliha teyzem rahmetli çok anlatırdı. 5 metre, 10 metre hatta 50 metrelik yılanlar. Artık hikayeyi anlatanın psikolojisine göre değişiyor yılanların boyu. Köyün orasında burasında görülen yılanlar, eski ev yıkıntıları arasında görülen yılanlar. Küçükken Tonyalının Mustafa abi, solucan kadar bir yılan yavrusunu yüzüme atmıştı. Dudaklarıma çarpan yavru yılandan çok korkmuştum. Bunu etkisi var mı bilemiyorum ama yılan lafını duyunca tüm vücudumu bir ürperti sarıyor. Köyde biri yine bir yılan lafı etti geçenlerde. Eski değirmeni görmeye gidecektim, gitmiyorum işte. Yılanınız da sizin olsun değirmeniniz de.

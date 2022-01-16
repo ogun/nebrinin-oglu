@@ -1,0 +1,36 @@
+# TEKNOLOJİK GELİŞMELER
+
+Bizim kuşağımız inanılmaz teknolojik gelişmelere şahit oldu. İlkel bir yaşamın içinden süzülerek geldik bu günlere biz. Elektriksiz geçen çocukluk yıllarımızda ilk önce radyo ile, daha sonra 1970’li yılların başında televizyon ile tanıştık. Tek kanallı, siyah beyaz televizyon yayınları, 1980’lerin başında renklendi. 1990’ların başında da özel kanalların devreye girmeye başlaması ile çok kanallı televizyon hayatına kavuştuk.
+
+Çocukluk yıllarımızda, köylerimizde telefonun direkleri ve telleri var ama kendisi yoktu. Elmatepe’deki Ormancı’nın telefonu varmış rivayete göre ama benim bilgim yok bu konuda.
+
+1990’ların başlarına kadar, metropol İstanbul’da bile evinde telefonu olan aile çok azdı. Telefonu olan aileler ayrıcalıklı ailelerdi. Lüks semtlerin dışında, mahallelerde bir veya iki ailede telefon bulunurdu. Telefon sahibi olmak da çok uzun vadeli bir işti. PTT’ye müracaat edip, 5-6 sene bekleniyordu telefon sahibi olmak için. Her semtte, uygun ve merkezi yerlerde, çok sayıda jetonlu telefon kulübeleri vardı.
+
+İletişim imkanı çok az olduğu için, sosyal ilişkiler de sıkıntılıydı. Randevulaştığınız bir arkadaşınız, saatinde gelmemişse, hemen çekip gidemezdiniz. Ya trafikte kalmışsa? Ya istemeyerek geç kalmışsa? Ya gelmek üzereyse? Hele de bu kişi, ilk kez buluşacağınız, adresini bilmediğiniz önemli bir kişiyse saatlerce beklemek zorunda kalırsınız. Çünkü bir daha görüşmeniz belki de tesadüflere kalır. Büyük postanenin önünde çantasını koluna takan, arkasından bakakaldığınız bir arkadaşınız mazide bir anı, adresini kaybettiğiniz eski bir okul arkadaşınız bir silüet ya da hoş bir seda olarak yer alır hafızanızda. O koşullarda yetişiyorduk. Var olan bir şeyi kaybetmemiştik. Dolayısı ile eksikliğini de hissetmiyorduk.
+
+İnanmayacaksınız ama iyi yönleri de vardı iletişim yokluğunun. İstemediğiniz kişilere karşı izinizi kolay kaybettirebiliyordunuz mesela. İçinde bulunduğum İETT otobüsü Vezneciler’e yaklaşıyordu. Tenha olan otobüsün arka sahanlığında kara kaşlı, kara gözlü, esmer bir kızla bir süre bakıştık. Kendisi pek güzel sayılmasa da bakışları etkileyici olmalı ki, tüm cesaretimi toplayıp yanına gittim.
+“Tanışalım mı?”
+“Olur.”
+Adını sordum; “Muazzez.”
+“Nerelisin?” dedim, ne gerek varsa.
+“Mardin’liyim.”
+“Cumartesi buluşalım mı?”
+“Olur.” dedi ama hemen ekledi, “Birlikte abimden izin almamız lazım.”
+“Neden?”
+“Biz aşiretiz. Abimden izin almadan gelemem.”
+Allah bin kere razı olsun o tarihte cep telefonunu icat etmeyenlerden.
+…
+
+Şehirlerarası görüşme yapabilmek inanılmaz zordu. 03 çevrilir, güçlükle ulaştığımız santral memuresine görüşülmek istenen kişinin bulundugu şehir ve telefon numarası ve görüşme şekli söylenirdi (Normal, acele, yıldırım ve ödemeli gibi). Saatlerce süren bekleyişten sonra, santral size döner, karşı numarayı bağlardı. Bir ara, numara yazdırıp saatlerce bekleme yerine, santral memuresine numarayı verip telefonu kapatmadan bekleme ve kısa sürede görüşme yapabilme uygulamasına geçildiğinde ne kadar çok sevinmiştik. Bu zaman kaybının önlenmesi ve çalışma hayatının hızlanması demekti. Ufak gelişmelerle bu süreç 1990’lı yıllara kadar devam etti.
+
+1983 yılında iktidara gelen Turgut Özal, biz sendikacıların eleştiri oklarının hedefi, meydanlardaki isyanlarımızın muhatabı idi. Özellikle son yıllarında “Çankaya’nın şişmanı, işçi düşmanı” idi gözümüzde. Haklı tepkilerimizin gerekçeleri de vardı. Ancak hakkını teslim etmemiz gereken büyük bir hizmeti vardı Özal döneminin. Telekominikasyon Altyapısı. Turgut Özal, dünyadaki gelişmeleri görmüş, telekomünikasyon altyapısını hazırlama konusunda pek çok ülkenin önüne geçmişti.
+
+Bu hazır altyapı ile birlikte çorap söküğü gibi gelişmeler yaşandı kısa sürede. Önce “Çağırı Cihazı” çıktı. Yokluğunuzda evdeki ya da ofisinizdeki sabit telefonunuza gelen aramaları anında size bildiren bir cihazdı bu çağırı cihazları. Hemen ardından “sivil telsiz” kullanımı devreye girdi. Sonra “Notebook”lar, derken herkesin kafa karışıklığı yaşadığı bu süreç hemen ardından “Cep Telefonu”nu çıkardı karşımıza. Giderek bilgisayar ve internet de hayatımıza girmeye başladı. Tüm bu gelişmeler bizim yabancı olduğumuz, alışmakta çok zorlandığımız şeylerdi. Bizim oyuncak ve eğlence aracı olarak gördüğümüz bilgisayarlar, hayatın her alanını kapsadı giderek. Yaklaşık 10 yıl içerisinde yaşanan bu teknolojik gelişmeler, bizim kuşağın aklını aldı adeta ve ıskartaya çıkarıp bir kenara atıverdi. Çok şey bildiğime, çok tecrübeye sahip olduğuma inandığım “ben”, ne kadar bilgisiz ve önemsiz olduğum gerçeği ile karşıya kaldım. Ama bizim çocuklarımız bu süreci adım adım yaşayarak yetişti. Bu da en büyük mutluluğumuz olmalı.
+
+Çocuklarımızın öğrettikleri kadar girdik internet hayatına. Daha fazlasına aklımız yetmiyor zaten. Cep telefonlarının da internet hizmeti vermeye başlaması ile Facebook ortamında eski arkadaşlarla buluşmaya, mesajlaşmaya başladım. Çok güzel bir hizmet idi bu uygulama bana göre.
+
+Bir gün oğlum Ogün “Baba, sana üniversite arkadaşlarınla buluşabileceğin bir sayfa açayım, ister misin?” dedi. Heyecanlandım. İstemez miyim? Oğlum sayfayı hazırladı. Okulun son yılında hazırlanmış “Yıllık”tan, tüm arkadaşların isimlerini sayfaya aktardık ve başladık Facebook üzerinden arkadaşları aramaya. Arkadaşlar açısından çevresi geniş olan ve aradan geçen 25 yıl içinde hiç irtibatımızın kesilmediği Haluk, Handan, Süha, Rıdvan, Halit gibi arkadaşların da katkıları ile 20’nin üzerinde arkadaşa ulaştık. 14 Haziran 2009’da, alt ya da üst sınıflardan katılan arkadaşlarla birlikte, 50’nin üzerinde bir katılımla, 25’inci mezuniyet yılı kutlaması yaptık Caddebostan Balıkadamlar Kulübünde. Bu başlangıcın ardından 2020’ye kadar her yıl tekrarladık bu yıllık buluşmalarımızı. Yurt dışından, ta Amerika’lardan gelen arkadaşlarımız oldu. Yurt içinden İzmir’den ve başka illerden o güne özel gelenler oldu. Mesaisini, yıllık izin ya da tatillerini o güne ayarlayanlar oldu. Bütün bunlar çok mutlu etti beni. Gerçi İstanbul’dan, iki adımlık yoldan zahmet edip gelmeyenler de oldu ama olumsuzlukları örnekten saymıyorum. Son iki yıl pandemi dolayısıyla aksayan yıllık buluşmalarımız, önümüzdeki yıllarda daha geniş katılımla devam edecek inşallah.
+
+Müzik alanında da yaşadık teknolojik gelişmeleri. Taş plak dönemini yaşamadık biz. Gramofon, plak, radyo ve sonra televizyon. 70’li yıllarda plaklardan dinlerdik sevdiğimiz müzikleri. Araçlarda, minibüslerde plak çalan “pikap”lar vardı. 80’lerin başlarında kasetler çıktı. Araçlardaki “pikap”ların yerini “kasetçalar”lar aldı. Daha pratik ve daha çok müzik demek olan kasetler devrimdi müzik alanında. Üstelik “ısmarlama kaset” hazırlayan kasetçiler vardı. İstediğimiz şarkıcılardan, istediğimiz şarkıları liste yaparak kasetçilere verir “ısmarlama kaset” doldurturduk. Büyük bir hizmetti bu kaset hazırlama işi. Sonra CD’ler çıktı. Bugün halen piyasada müzik cd’leri var ama cep telefonları ve internet giderek ele geçiriyor müzik dünyasını.
+
+Teknoloji hayatın her alanını etkiliyor, değiştiriyor. Biz çok değişiklik, yenilik gördük, yaşadık. Bundan daha fazlası ne olabilir? Bilemem. Biz göremeyiz ama daha çok yeniliklere gebe dünya. Önemli olan hazırlıklı olmak, gelişmelerin gerisinde kalmamak. Daha doğaya, çevreye duyarlı, daha sevgi ve saygı dolu, daha barışçıl, daha adil ve eşitlikçi bir dünya dileyelim çocuklarımıza, torunlarımıza.

@@ -1,0 +1,70 @@
+# Table of contents
+# Learn more at https://jupyterbook.org/customize/toc.html
+
+format: jb-book
+root: intro
+parts:
+  - caption: Giresun
+    chapters:
+      - file: contents/karaali-koyu
+      - file: contents/ilkokul-cagim-gelmis
+      - file: contents/guneykoy-ilkokulu
+      - file: contents/demircinin-evi
+      - file: contents/atik-ali
+      - file: contents/yeni-okulumuz-karaali-koyu-ilkokulu
+      - file: contents/findik
+      - file: contents/bir-ani-bir-itiraf-iki-ozur
+      - file: contents/ayricalik
+      - file: contents/ogretmenler-ve-birisi
+      - file: contents/keraat-kerrat-cetveli
+      - file: contents/sigaramin-dumani
+      - file: contents/buyuk-iftira-okuldan-kactim
+      - file: contents/tuz-ekimi-festivali
+      - file: contents/fenerbahce-ve-mahalle-macimiz
+      - file: contents/ekinci-korkusu
+      - file: contents/asikoglu-sulalesi
+      - file: contents/tombelek
+      - file: contents/istihareye-yatmak
+      - file: contents/zambak-cicegi
+      - file: contents/karaali
+      - file: contents/horoz-kurdelesi
+      - file: contents/bu-cocuk-okuyacak
+      - file: contents/ayilar
+      - file: contents/inegimiz-osemis
+      - file: contents/gurbetcilik
+      - file: contents/niyazinin-buyuk-gol
+      - file: contents/dedeler-neneler
+  - caption: İstanbul
+    chapters:
+      - file: contents/istanbul-istanbul
+      - file: contents/vefa-poyraz-lisesi
+      - file: contents/istanbulu-tanimak
+      - file: contents/is-hayatina-atilmak
+      - file: contents/agac-is-sendikasi
+      - file: contents/sendikada-huzur-kaciyor
+      - file: contents/haydar-baskan-gidiyor
+      - file: contents/12-eylul-1980-ve-universite
+      - file: contents/askerlik
+      - file: contents/istikamet-aydin
+      - file: contents/sendikaya-donus-ve-kartal
+      - file: contents/sube-sekreteri
+      - file: contents/agac-is-sendikasi-istanbul-sube-baskani
+      - file: contents/son-yaklasiyor
+      - file: contents/mahallem-ve-ailem
+      - file: contents/ve-ailemize-can-geldi
+      - file: contents/toplumsal-yasam
+      - file: contents/teknolojik-gelismeler
+      - file: contents/asik-veysel-ve-madimakta-yakilan-ozanlar
+      - file: contents/pandemi-gunleri
+      - file: contents/mahalle-dostlari
+      - file: contents/tavuk-su-icer-allaha-bakar
+      - file: contents/adelin-iftar-yemegi
+      - file: contents/adel-kalemde-tensikat
+      - file: contents/tufek-temizligi
+      - file: contents/ben-allahin-sevdigi-bir-kulum
+      - file: contents/av-alisan-sertel
+      - file: contents/iyi-tavla-oynarim
+      - file: contents/gideros-koyu
+      - file: contents/ege-gezisi
+      - file: contents/kibris-semineri
+      - file: contents/pinpon
