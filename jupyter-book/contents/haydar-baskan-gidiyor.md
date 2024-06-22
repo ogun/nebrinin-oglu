@@ -1,6 +1,6 @@
 # HAYDAR BAŞKAN GİDİYOR
 
-Kuriş Kontraplak Fabrikası. Kartal, Devlet hastanesinin hemen yanında, Ankara Asfaltı üzerindeki bu fabrikada çalışan üyelerimizin toplu iş sözleşmesi müzakerelerinin kritik günleri. Bir Cumartesi günü, şubede yalnızım. Kuriş’in 4 temsilcisi, başlarında baştemsilci Mehmet Moğolkanlı olmak üzere sendikaya geldiler. Önümüzdeki Çarşamba günü sözleşme toplantısı var.
+Kuriş Kontraplak Fabrikası. Kartal, Devlet hastanesinin hemen yanında, Ankara Asfaltı üzerindeki bu fabrikada çalışan üyelerimizin toplu iş sözleşmesi müzakerelerinin kritik günleri. Bir Cumartesi günü, şubede yalnızım. Kuriş’in 4 temsilcisi sendikaya geldiler. Önümüzdeki Çarşamba günü sözleşme toplantısı var.
 
 Temsilciler çok kızgın Haydar başkana. “Asla o rakama sözleşmeyi imzalamayız. Haydar Atabay bizim sözleşmemize girmesin.” diyorlar.
 
@@ -8,7 +8,7 @@ Ben de “Pazartesi ya da Salı günü, İskender abiyi çağırın konuşun.”
 
 Perşembe günü, şubede İskender abinin morali çok bozuk. Bir gün sonrasında bir yazı geliyor Kuriş’in 4 temsilcisinin imzasıyla “Biz temsilciler imzalanan sözleşmeyi kabul ediyoruz. Şubede kabul etmeyen varsa, gelsin işçilere anlatsın.” (Ben bu yazıyı, sendikadan ayrıldığım 2001 yılına kadar muhafaza etmiştim.)
 
-Bu yazı üzerine İskender abi “Ben gidip işçilerle konuşacağım.” diye tutturdu. Hayri abi ile birlikte çok ısrar ettik gitme diye. Bunun oyun olduğu, pusu olduğu o kadar belli ki. Tüm ısrarlarımıza rağmen gitti. Kurulmuş, örgütlenmiş işçilerin elinden zor kurtarmışlar İskender abiyi. Çok uzun süre baştemsilci Mehmet Moğolkanlı’ya diş biledi İskender abi.
+Bu yazı üzerine İskender abi “Ben gidip işçilerle konuşacağım.” diye tutturdu. Hayri abi ile birlikte çok ısrar ettik gitme diye. Bunun oyun olduğu, pusu olduğu o kadar belli ki. Tüm ısrarlarımıza rağmen gitti. Kurulmuş, örgütlenmiş işçilerin elinden zor kurtarmışlar İskender abiyi. Çok uzun süre baştemsilciye diş biledi İskender abi.
 
 Çok geçmeden de, Haydar başkan Ankara’ya çağırıldı Genel Merkez tarafından. Gidişinin akşamına doğru haber ulaştı şubeye.
 
