@@ -34,6 +34,20 @@ parts:
       - file: contents/gurbetcilik
       - file: contents/niyazinin-buyuk-gol
       - file: contents/dedeler-neneler
+      - file: contents/kuruncu-ali
+      - file: contents/tabancamin-sapuni-gulle-donatacagum
+      - file: contents/yayla-yerlesimimiz
+      - file: contents/keci-kayasi
+      - file: contents/gelin-kayasi
+      - file: contents/findik-zamani
+      - file: contents/kilise-kalintilari
+      - file: contents/aricilik
+      - file: contents/temel-iki-besinimiz
+      - file: contents/koyde-binek-hayvanlari
+      - file: contents/eski-aydinlatma-araclarimiz
+      - file: contents/abdullah-hoca
+      - file: contents/karaali-koyu-ve-mubadele
+      - file: contents/giresun-dili-ve-sivesi
   - caption: İSTANBUL
     chapters:
       - file: contents/istanbul-istanbul
@@ -54,6 +68,7 @@ parts:
       - file: contents/ve-ailemize-can-geldi
       - file: contents/toplumsal-yasam
       - file: contents/teknolojik-gelismeler
+      - file: contents/mektup
       - file: contents/asik-veysel-ve-madimakta-yakilan-ozanlar
       - file: contents/pandemi-gunleri
       - file: contents/mahalle-dostlari
@@ -65,6 +80,9 @@ parts:
       - file: contents/av-alisan-sertel
       - file: contents/iyi-tavla-oynarim
       - file: contents/gideros-koyu
-      - file: contents/ege-gezisi
+      - file: contents/2019-ege-gezisi
+      - file: contents/2022-ege-akdeniz-gezisi
       - file: contents/kibris-semineri
       - file: contents/pinpon
+      - file: contents/nostalji
+      - file: contents/selma-gezinir

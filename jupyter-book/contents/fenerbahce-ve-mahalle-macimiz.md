@@ -3,7 +3,7 @@
 Tarih; milattan önceki bir tarih.
 Milat; radyonun bizim köye gelişi.
 Milat; benim radyodan Fenerbahçe’nin ismini duyuşum.
-Milat; radyodan, tesadüfen, Gençlerbirliği - Fenerbahçe maçının son dakikalarını rahmetli Orhan Ayhan’dan dinleyişim.
+Milat; radyodan, tesadüfen, Gençlerbirliği - Fenerbahçe maçının son dakikalarını Orhan Ayhan’dan dinleyişim.
 “Evet sayın dinleyenler, maçın son dakikasında Şeref’in ceza sahası dışından çektiği şutla, iğne deliğinden iplik geçirircesine attığı golle Fenerbahçe beraberliği sağladı. Ve maçın sonucu: Gençlerbirliği 1 - Fenerbahçe 1”
 
 Fenerbahçeli olduğum, Fenerbahçe’yi seçtiğim milattan önceki o günü çok iyi hatırlıyorum. Nedenlerim gerekçelerim elbette bilinçsizce ve çocukça idi. Ancak seçimimin ne kadar doğru olduğunu bilinçlendikçe anlayacaktım. Benim anladıklarımı anlamayanlar da çok ama ne gam, onlar Fenerbahçeli olma mutluluğunu ve gururunu hiç yaşamadılar yaşayamayacaklar.

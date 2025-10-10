@@ -19,16 +19,17 @@ Yanlış yaptın başkanım. Bana böyle bir teklif yapmayacaktın.
 1989 yılının Kasım ayında yapılan Genel Merkez genel kurulunda, Mürsel başkan Genel Teşkilatlanma Sekreterliğine aday oldu. Ben, sandık başında oy sayım heyetindeyim.
 
 Mürsel Taşçı’nın aday olduğu Teşkilatlanma Sekreterliği oylarının sayımında, ben, Mürsel Taşçı’ya verilen oyları özellikle önüme, muhafazaya alıyorum. Çünkü sayım yaptığımız masanın önünde delegeler üst üste. Eller sayım masasında. Sayıyoruz oyları:
-Mürsel Taşçı : 100
-Hasan Nazlı : 97
+Mürsel Taşçı	: 100
+Hasan Nazlı		: 97
 
 Sandık kurulu başkanı açıklıyor salona. Bizim grup Mürsel Taşçı’yı tebrik kuyruğunda iken, Hasan Nazlı’dan itiraz geliyor. Tekrar sayıyoruz oyları. Ben sayarken masanın öbür tarafındaki tüm gözler oy pusulalarında. Aradan bir tane Hasan Nazlı oyu çıkıyor, gözden kaçmış. Sandık kurulu başkanı tekrar açıklıyor:
-Mürsel Taşçı : 99
-Hasan Nazlı : 98
+Mürsel Taşçı	: 99
+Hasan Nazlı		: 98
 
 Hasan Nazlı mevcut yönetimde. Bu sonucu kabul etmiyor, hele de sayım kurulunda ben, yani Mürsel’in adamı varken. Pazar günü, saat gece 9-10 suları, nasıl ulaştılarsa, ilçe seçim kurulu başkanı bulunuyor. Başkan geliyor, bütün oyları alıyor, arkada tek başına sayıyor ve açıklıyor;
-Mürsel Taşçı : 98
-Hasan Nazlı : 99
+Mürsel Taşçı	: 98
+Hasan Nazlı		: 99
+
 
 Tabii salon karışıyor. Ben itiraz ediyorum. Bu sonuç mümkün değil, dinleyen yok. Mürsel Taşçı isyan ediyor ilçe seçim kurulu başkanına.
 “Yaptığınız usulsüz. Gerekirse on kere, yüz kere sayacaksın ama bir kere ilan edeceksin.” diyor ama anlayan yok.

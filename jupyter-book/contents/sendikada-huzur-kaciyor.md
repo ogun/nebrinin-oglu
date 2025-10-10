@@ -32,7 +32,7 @@ Biz saat 10’da şubedeyiz. Haydar Başkan 11-12’ye doğru geliyor. Sade kahv
 
 77 Mayıs’ının ortaları. 19 Mayıs’a bir kaç gün var. Şube Sekreteri Cemil Demirci şubeye gelmiş. Cemil mert, sözünü esirgemez biri. Haydar başkanı şikayet ediyoruz. Hafta sonu ve bayram tatillerinde çalışmak istemediğimizi ama bunu başkana söyleyemediğimizi anlatıyoruz. Cemil Demirci kızıyor başkana, sinirli sinirli giriyor başkanın odasına “Abi sen bu çocukları niye tatil günleri çalıştırıyorsun? Kendi personelinin hakkını yiyen sendikacı olur mu?” diyor. Bozuluyor bize Haydar Başkan. “Evlatlarım beni şikayet etmiş.” diyor sitemkar tavırla. Artık hafta sonları tatilimiz var, milli bayramlar hariç, dini bayramlarda bir veya iki gün tatil yapabiliyoruz.
 
-77 yılının Haziran ya da Temmuz ayında olağan kongremizi yapıyoruz. Haydar Atabay yine başkanımız. Elka’dan İskender Alper Şube sekreterimiz. Şube mali sekreterimiz yine Şakir Can yanlış hatırlamıyorsam.
+77 yılının Haziran ya da Temmuz ayında olağan kongremizi yapıyoruz. Haydar Başkan yine başkanımız. Elka’dan İskender Alper Şube sekreterimiz. Şube mali sekreterimiz yine Şakir Can yanlış hatırlamıyorsam.
 
 …
 
@@ -44,7 +44,7 @@ O yılın, 77’nin Ekim ayında Ankara’da, Genel Merkezin genel kurulu var. G
 
 Ankara’ya 13 delege ile gitti İstanbul Şubesi. Ben şubede nöbetçiyim. Haydar başkan, genel merkezle ilişkisini kesmek için İskender Alper’i de Genel Sekreterliğe aday yapmış. Seçim sonucunda bir terslik olmuş. İskender Alper, Haydar başkandan fazla oy almış. Toplam 210 delegeden:
 
-Genel başkan adayı Haydar Atabay 13,
+Genel başkan adayı Haydar Başkan 13,
 Genel sekreter adayı İskender Alper 16 oy almış.
 
 Bu ne demek? Bu ihanet demek. Demek İskender Alper HAİN. Hiç affetmedi Haydar başkan İskender Alper’i. Hain olmasaydı, kendisinden fazla oy alması mümkün mü idi? Asla.

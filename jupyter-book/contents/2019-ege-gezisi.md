@@ -1,8 +1,9 @@
-# EGE GEZİSİ
+# 2019 EGE GEZİSİ
 
 Kafa dengi arkadaşlarla geziye çıkmayı seviyorum. En çok, çocuklarımın da olduğu gezileri severim, çok mutlu olurum çocuklarımla ama büyüdüler, çok çabuk büyüdüler. Artık onlarında kendilerine göre planları oluyor ve planlarımız her zaman örtüşmüyor. Bacanaklar sağolsun. Gezilere, tatillere Zafer ya da küçük Mehmet bacanaklarla çıkıyoruz son yıllarda.
 
 Eşim Sabahat’ın ailesi mübadele zamanı Bulgaristan’dan gelmiş. Önce Tekirdağ’ın Saray ilçesi Çukuryurt köyüne, daha sonra da İstanbul’a göçmüşler. Ailenin 5 kızı var. Sabahat dördüncü. Yani, dört bacanağım var. Bacanaklarımın hepsi de pırıl pırıl insanlardır. Eşleri olan Şükran ablam, Türkan ablam, Özcan, Hatice ne kadar güzel insanlar. Sevgi dolu ablalar, kardeşler. Kayınpederim 1987’de vefat etti. Dünya iyisi bir insandı. Kayınvalidem de çok iyi sevecen bir kadın. Yaklaşık 40 yıldır bu ailenin içindeyim. Ne kardeşler arasında, ne bacanaklar arasında bir dargınlık, kırgınlık olmadı. Bir iki ufak tartışma olmuştur belki ama lafı edilecek türden değil yani.
+
 
 Büyük bacanak Nedim abi Elazığ’lı. Bacanakların yaşça en kıdemlisi ama ona sorsan en genci. Mahalle hocasıyla çok haşır neşir, Allah kabul etsin. Şükran ablam, ailenin sevilen ablası. Biraz rahatsız bu sıralar. Allah tez şifa versin diye duacıyız.
 

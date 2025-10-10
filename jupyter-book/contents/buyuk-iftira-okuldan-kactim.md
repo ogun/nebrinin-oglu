@@ -33,6 +33,7 @@ Oturmuşum yolun kenarındaki taşın üstüne, burnumu çeke çeke ağlıyorum.
 “2. ninki benim”
 Hele bir de taksi geçerse. Taksi şoförünün kızı ne demek?
 
+
 Ne kadar oturdum orada bilmiyorum. Bir süre sonra Tevfik Usta koşa koşa geldi, “Öğretmen seni çağırıyor, bir şey yapmayacakmış, korkmasın gelsin.” dedi diyerek beni okula götürmek istedi. “Yok, ben gelmiyorum.” dedim. Haklıyım çünkü. Suçum yok ki benim. Tevfik ısrar ediyor ama öğretmenin yolladığı mesajlar bana yumuşak gelmiş olmalı ki “Öğretmen bana bir şey söyleyecekse kendisi buraya gelsin.” deyip kestirip attım. O cesareti nereden bulduysam artık. Tevfik çaresiz kalktı, okula döndü. Çok haklıyım ve haklı olarak da öğretmenin gelip gönlümü almasını bekliyorum. Biraz sonra bu sefer Tevfik’in abisi Mahmut geldi. Öğretmen “Çabuk gelsin okula yoksa bacaklarını kırarım." demiş. Severdim öğretmenimi. İkna oldum çabucak. Hiç kırar mıyım, bekletir miyim öğretmenimi? Mahmut’la birlikte okula döndük.
 
 Bizim sınıf evin hemen girişindeki hayatta idi. Ders başlamıştı. Dersimiz Yurttaşlık Bilgisi. Öğretmen bana geç otur işareti yaptı. Oturdum. Başım önümde. Ders sırasında bana da bir soru sordu “Bilmiyorum.” dedim. “Suçun iki oldu biliyor musun?” dedi. Ses çıkaramadım. Korkudan dizlerim titriyor. Çok korkuyorum. Ders bitti. Herkes dışarı çıktı. Ben sıramda oturuyorum. Öğretmen çağırtmış, Gülin ile Beyhan bana kötü kötü bakarak içeri girdiler. Ben sıramı bekliyorum. Az sonra çıktılar, önümden geçerken Gülin, “Göreceksin sen” dedi. İçimdeki korkuyu katlayıp çıktılar.
