@@ -31,8 +31,7 @@ Nüfusumuzun %99’unun müslüman olduğu iddia ediliyor. (2019’da yapılan b
 
 Tecavüzler için “bir kereden bir şey olmaz” diyen; şiddete uğrayan, öldürülen kadınlarımız için, “kadına şiddet konusu abartılıyor” diyen yetkilileri alkışladılar üstelik.
 
-    Eğitimin kalitesi giderek düştü. Toplumda eğitimli kesime karşı takınılan tavır körüklendi, desteklendi. “Eğitim seviyesi yükseldikçe beni afakanlar basıyor.” diyen, “Ben cahil kesimin ferasetine inanıyorum.” diyebilen ve el üstünde tutulan sözde profesörler bile çıktı.
-
+	Eğitimin kalitesi giderek düştü. Toplumda eğitimli kesime karşı takınılan tavır körüklendi, desteklendi. “Eğitim seviyesi yükseldikçe beni afakanlar basıyor.” diyen, “Ben cahil kesimin ferasetine inanıyorum.” diyebilen ve el üstünde tutulan sözde profesörler bile çıktı.
 …
 
 Suriyeliler… Suriyeli sığınmacılar… 1991 Irak savaşı sırasında, zamanın iktidarı Irak sınırında tampon bölge oluşturmuş, savaştan kaçan sığınmacıları burada korumaya almış, sınırdan içeri sokmamıştı.
@@ -41,8 +40,7 @@ Suriyeliler… Suriyeli sığınmacılar… 1991 Irak savaşı sırasında, zama
 
 Basında yazılanlar doğruysa, 8-10 yıllık süre içinde 4 milyon civarında Suriyeli sığınmacı dağıldı Türkiye’nin yedi bölgesine, 81 iline. Bazı illerde Suriyelilerin mahallesi, sokağı, caddesi oluştu. Demografik yapısı bozuldu bazı il ve ilçelerin. Bizim askerlerimiz Suriye’de can verirken, ülkemizin sokaklarında, plajlarında Suriyeli genç erkeklerin, delikanlıların eğlenceleri giderek rahatsızlık yarattı, hatta zaman zaman bazı yerlerde Suriyelilerden kaynaklanan güvenlik sorunları yaşandı.
 
-        Resmi açıklamalara göre, bugüne kadar 40 milyar dolar harcamışız Suriyeli sığınmacılar için. Daha ne kadar harcarız belli değil.
-
+Resmi açıklamalara göre, bugüne kadar 40 milyar dolar harcamışız Suriyeli sığınmacılar için. Daha ne kadar harcarız belli değil.
 …
 
 İstanbul. Dünya’da bir eşi daha olmayan İstanbul. Tarihin ve kültürlerin beşiği, merkezi İstanbul. Yeryüzünde hangi şehir tarihi geçmişi ile, tarihi derinliği ile, kültürel çeşitliliği ile İstanbul’la boy ölçüşebilir. Böylesine derin ve zengin bir tarihi olan şehir nasıl bir sanayi çöplüğü haline getirilebilir.

@@ -3,9 +3,9 @@
 1992 şube genel kurulundan aynı kadro ile çıktık. Aynı yıl yapılan Genel Merkez Genel kurulunda Mürsel Taşçı sorunsuz ve sıkıntısız seçildi Genel Teşkilatlanma Sekreterliğine.
 
 Mürsel Taşçı’yı Ankara’da bırakıp döndük İstanbul şubesine. Yönetimde düzenleme yaptık.
-Şube Başkanı : Selami Işık
-Şube Sekreteri : Muhittin Atabek
-Şube Mali Sekreteri : Nail Delikanlı
+Şube Başkanı		: Selami Işık
+Şube Sekreteri	: Muhittin Atabek
+Şube Mali Sekreteri	: Nail Delikanlı
 
 Bu kadro ile 95 ve 98 genel kurullarından da geçerek, 2000’li yıllara kadar birlikte çalıştık. Özellikle Muhittin Atabek’le çok uyumlu ve dayanışarak, yardımlaşarak çalıştık. Çok dürüst ve çok güvenilir bir insandı Muhittin.
 

@@ -11,6 +11,7 @@ Sabah 7.30 gibi Karlıtepe’deki evimizden çıkıyorum. Çoğu zaman Karlıtep
 
 Yahu bu darbenin lafı bile ne kadar korkunçmuş. Elim ayağıma dolaştı. Rahat ve sakin geçtiğim sokaklardan tedirgin ve etrafıma baka baka döndüm eve. Evde uyuyanları kaldırdım. Televizyonu açtım. Kenan Evren’in tarihi konuşması, arkasından bildiriler. Arada Hasan Mutlucan’dan türküler.
 
+
 Geçmiş darbeleri konuşması kolaydı. Sen darbeyi yaşa da gör. Gözüm çekyatın ve televizyon dolabının raflarındaki kitaplara takılıyor. Eyvah ki eyvah.
 
 Cilt cilt Nazım Hikmet kitapları. Mahmut’un bir arkadaşının kitapları. Bu kitapları ne yapacağım, nereye saklayacağım ya da atacağım. Polisler, jandarmalar neredeyse gelir. Her an bekliyorum nedense. Darbenin darbe olması için gelmeleri gerekiyor, yoksa niye yapsınlar darbeleri. Ne atacak yerim var kitapları, ne de saklayacak. “Yakalım.” diyor annem. Evet, en iyisi yakmak. Ya bacadan çıkacak dumanlar? Yavaş yavaş, tek tek yakacağız kitapları.
@@ -40,7 +41,7 @@ Bu arada 1983 yılı başında evlendim, köyde, istiharede gördüğüm Sabahat
 1983’te yapılan seçimle normal hayata dönülünce, benim okula gidiş gelişlerim biraz aksadı.
 
 Bir akşam şubede çalışıyorum. Okuldan, Haluk arıyor “Nerdesin lan, sınava niye gelmedin?” diyor. “Ne sınavı, haberim yok.” diyorum. Formasyon derslerinden, Türk dili dersinden sınav varmış fakültenin ana binasında. Ben dersleri aksattığım için, sınav günlerini de kaçırdığım oluyor. Hoca kızmış, bu dönemi geçemeyeceğimi söylemiş.
-“Hemen okula koş, yoksa hoca kesin bırakacak.” diyor.
+	“Hemen okula koş, yoksa hoca kesin bırakacak.” diyor.
 “Bütün sınıf yalvardık senin için.” diyor.
 
 Hemen fırlıyorum şubeden, saat 6’ya geliyor. Edebiyat Fakültesi ana bina üçüncü kat. Buluyorum profesörün odasını. Kendimi tanıtıyorum. Yukarıdan aşağı süzüyor beni.
@@ -86,6 +87,7 @@ Akşam, hemşehrim olan hanımı Ümit ile markete, bizim için alışverişe gi
 
 Çok üzüldük. Kötü hastalıktan kaybettiğimiz Selma Gezinir’den sonra ikinci kaybımız oldu Ali Fuat. Allah ikisini de nurlarda yatırsın.
 …
+
 
 Uzatmadım okulu. 1984 yılı Haziran’nında, elimde üniversite diploması ve coğrafya öğretmenliği formasyonu ile ayrıldım okulumdan. 1984 Ekim’inde, ismini yıllar önce koyduğum oğlum Ogün geldi dünyaya. Dünyada bundan büyük mutluluk olabilir mi? Hayatımız renklendi.
 

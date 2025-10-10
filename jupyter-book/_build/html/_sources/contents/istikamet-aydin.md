@@ -116,4 +116,4 @@ Bilecik’te, kışlanın biraz yüksekçe yamacına “Türk, Öğün, Çalış
 Bölük içtima alanında toplu halde, haftalık dağıtılan postalarda adımıza gelen/gelecek mektupları beklerken duyduğumuz heyecanı unutmuyorum. Kışla içindeki telefon kulübesinden jetonla İstanbul’a ulaşabilme çabalarımızı unutamıyorum. Bilecik’te çektiğimiz susuzluğu, su depolarının ve çeşmelerin kurnalarından kurtlu su içmeye çalıştığımız günleri unutamıyorum. Aydın’da, kışlamızdaki şarıl şarıl akan suları görünce, Bilecik’te kalan arkadaşlara nispet mektubu bile yazdık “burası cennet” diye.
 …
 
-           1986 Mart ayının sonlarında, acısı ve tatlısı ile bitirdik askerliği. Ahmet benden 2 gün önce terhis oldu. Ben de, Ahmet’le arazideki ağaçlardan toplayıp, plastik su şişelerinde tuzladığımız zeytinleri içinde kamufle ettiğim çantam elimde çıktım nizamiye kapısından.
+1986 Mart ayının sonlarında, acısı ve tatlısı ile bitirdik askerliği. Ahmet benden 2 gün önce terhis oldu. Ben de, Ahmet’le arazideki ağaçlardan toplayıp, plastik su şişelerinde tuzladığımız zeytinleri içinde kamufle ettiğim çantam elimde çıktım nizamiye kapısından.

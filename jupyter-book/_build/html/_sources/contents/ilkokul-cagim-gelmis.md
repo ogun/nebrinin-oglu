@@ -14,7 +14,7 @@ Ağaçtan iniyorum. Fındık ocaklarının arasından, patika yoldan koşarak ev
 Annem elimden tutup, nememlere götürüyor beni. Halam orada, hem annesini babasını ziyarete, hem de beni alıp götürmeye gelmiş. Sonrası, hatıralar, detaylar silik.
 …
 
-Halamın kızları Emine abla ve yaşıtım Taliye ile okula gidiyoruz. Emine abla 3. sınıfta olmalı, biz Taliye ile 1’de, aynı sınıftayız.
+Makbule halamın 3 kızı vardı. Emine ablam, yaşıtım Taliye ve küçük kızı Mine. Halamın kızları Emine abla ve yaşıtım Taliye ile okula gidiyoruz. Emine abla 3. sınıfta olmalı, biz Taliye ile 1’de, aynı sınıftayız.
 
 Alıyoma ilkokulunda bir yıl okudum. Çok şey kalmamış hafızamda. İlk futbol topunu orada gördüm. Benim bildiğim top, plastik, iki üç günde yırtılıp parçalanan, patlamış haliyle, hatta parçalanmış haliyle peşinden koşup tekmelediğimiz bir şeydi. Ama Yoma okulunda bizden büyük çocukların elinde daha büyük, kahverengi bir şey vardı, meğer esas futbol topu oymuş.
 

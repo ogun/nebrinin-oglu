@@ -10,7 +10,7 @@ Mahallemde, bir işle meşgul değilsem günlerim, bizim “dernek” dediğimiz
 
 “Akrabalarım” da var burada. Topal Osman Rusları Harşit çayında durdurmuş ya, Trabzonlu olan rahmetli Selçuk abime akraba diye takılırdım. Tabii karşılığını göze alarak. Reha abimiz de Sürmeneli, ona da akraba, emmioğlu diyorum. Reha’nın da dili Selçuk abimden düzgün değil ki, insan akrabasına kötü söz söyler mi? Sinirliler ama şaka kaldıran, seven ve dost insanlar akrabalarım.
 
-Okey oynarız genelde ama arada iddialı tavla oynadıklarım da var. Rahmetli Ayhan ile çok oynardık. Kemalettin ile, Aydın ile, Mustafa sık sık oynarız ama en çok İbrahim başkanla oynarız tavlayı.
+Okey oynarız genelde ama arada iddialı tavla oynadıklarım da var. Yıldıztabya’da iken Apo ile ve özellikle Necdet Aydın ile çok sık ve hararetli oynardık. Yeni mahallemde de Rahmetli Ayhan ile çok oynardık. Kemalettin ile, Aydın ile, Mustafa İpek ve Densiz Mustafa ile sık sık oynarız ama en çok İbrahim başkanla oynarız tavlayı.
 
 Dedim ya iyi oynarım tavlayı. İddialı oynarım. Kendime göre neşeli oynarım. Zarı ben atarken de konuşurum, rakibim atarken de. Ben zar atarken, neye ihtiyacım varsa; “Hadi oğlum düşeş, hadi oğlum dübeş” diye atarım, İbrahim başkan zar atarken de, ona ne yaramıyorsa; “Hadi gele, hadi iki bir...”
 

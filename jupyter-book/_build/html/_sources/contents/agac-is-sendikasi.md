@@ -11,11 +11,11 @@ Televizyon yeni yeni giriyordu evimize, hayatımıza. Tek kanallı, siyah beyaz.
 
 Eldiven atölyeme, patronuma, Niko abime haber vermeden, sessiz sedasız terk ettim hepsini. Hala mahcubiyet duyarım. Sendikada aldığım ücret atölyeden aldığımın yarısı kadar. Ancak hiç tereddüt etmiyorum. İşimden memnunum.
 
-Şube sekreteri Nezih abi, şoför Trabzonlu Hayri abi, ben ve organizatör sıfatı ile Şube başkanlık görevini üstlenmiş Haydar Atabay. Toplam dört kişiyiz şubede.
+Şube sekreteri Nezih abi, şoför Trabzonlu Hayri abi, ben ve organizatör sıfatı ile Şube başkanlık görevini üstlenmiş Haydar Başkan. Toplam dört kişiyiz şubede.
 
-Şube başkanı anlaşmazlık sonucu ayrılmış, şube avukatı Adnan Dizer arkadaşı Haydar Atabay’ı tavsiye etmiş Ankara’ya, genel merkeze, onlar da kabul etmişler.
+Şube başkanı anlaşmazlık sonucu ayrılmış, şube avukatı Adnan Dizer arkadaşı Haydar Başkan’ı tavsiye etmiş Ankara’ya, genel merkeze, onlar da kabul etmişler.
 
-Haydar Atabay müthiş adam, karizmatik, cesur, ikna gücü son derece kuvvetli ve hitabeti çok güçlü. En inatçı adamı yarım saatte ikna eder. Ancak önünde kadehi, kadehinde votka ya da rakısı eksik olmayacak. Çantasında mutlaka bir veya iki cep kanyağı bulunur. Son derece babacan bir adam.
+Haydar Başkan müthiş adam, karizmatik, cesur, ikna gücü son derece kuvvetli ve hitabeti çok güçlü. En inatçı adamı yarım saatte ikna eder. Ancak önünde kadehi, kadehinde votka ya da rakısı eksik olmayacak. Çantasında mutlaka bir veya iki cep kanyağı bulunur. Son derece babacan bir adam.
 
 Adeta avanesi gibi çevresindeyiz. Gün geliyor gece yarılarına kadar, sabaha kadar çalışıyoruz. Hafta sonumuz, bayram tatilimiz yok. Başkanımız “çalışıyoruz” dedi mi, itirazsız, koşuyoruz şubeye. Giderek izinsiz, tatilsiz çalışma koşullarından rahatsız oluyoruz ama bunu hiçbirimiz Haydar başkana söyleyemiyoruz.
 

@@ -58,7 +58,7 @@ Sonunda, Mürsel başkanı ikna edip, bir sabah Sefaköy’ün yolunu tutuyorum.
 Mürsel Başkanı arıyorum “Şubeye gel, söz verdi itiraz etmeyecek.” diyor. Ertesi, gün şubedeyim. Ahmet abi “Oğlum sen kazandın da ben itiraz mı ettim? Hem ben kaybedeceksem, başkası geleceğine sen gel yönetime.” diyor.
 
 Nisan ayında yapıyoruz genel kurulu. Seçim sonucu:
-Ahmet Uzun : 19
-Selami Işık : 76
+Ahmet Uzun	: 19
+Selami Işık		: 76
 
 Ağaç-İş Sendikası, İstanbul Şubesinin yeni şube sekreteri oluyorum. Biz, şube olarak memnunuz sonuçtan. Genel Merkez de memnun. Şube personelliği ve şube sekreterliğini bir kişide birleştirip, iki maaşı teke indirdi.

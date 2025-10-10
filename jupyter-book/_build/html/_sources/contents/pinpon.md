@@ -17,7 +17,7 @@ Nereden bilecek Allah’ın Bolulusu. Kedi fareyle oynar gibi oynarım ben İsma
 
 Aldık topu, raketleri, başladık oynamaya. Yahu arkadaş, insanda edep adap olur. İzan vicdan olur. Ben 5 yapıncaya kadar İsmail başkan 15 yapıyor, 20 yapıyor. Hiç nazik de değil, “Bak, beni iyi seyret de öğren” diyor. Ayıp ayıp vallahi ayıp. Nezaket denilen bir şey var ama, Bolu’ya hiç uğramamış anlaşılan.
 
-İsmail başkan, Bolu’da SEKA Kağıt fabrikasında çalışıyor. Meğer kamu işyerlerinde bu tür spor alanları varmış ve isteyen her gün oynarmış, nerden bileyim ben?
+İsmail başkan, Bolu’da SEKA Laminat fabrikasında çalışıyor. Meğer kamu işyerlerinde bu tür spor alanları varmış ve isteyen her gün oynarmış, nerden bileyim ben?
 …
 
 Bahçenin kenarında voleybol sahası varmış. Bizim gibi canı sıkılan birkaç kursiyer davet etti; “Hadi voleybol oynayalım.”

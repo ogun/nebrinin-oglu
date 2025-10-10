@@ -45,4 +45,4 @@ Son gün önce Lefkoşa’ya götürdüler bizi. 1964 yılında, alçak Rum ter�
 
 Ayrılırken, hatıra olarak güzel bir saat aldım Girne’den. Halen saklarım özenle.
 
-Dönüşte gemi ile dönmekte ısrar ettim ama mümkün değildi. Bana bir sürü ilaçlar içirdiler. Yine rahat geçmedi yolculuğum, ancak ilaçların etkisi olmuştu. Tuz Gölü’nü bile seyrettim.
+Dönüşte gemi ile dönmekte ısrar ettim ama mümkün değildi. Bana bir sürü ilaçlar içirdiler. Yine rahat geçmedi yolculuğum, ancak ilaçların etkisi olmuştu. Tuz Gölü’nü bile seyretme cesaretini gösterdim.

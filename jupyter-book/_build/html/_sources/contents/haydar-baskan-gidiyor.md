@@ -2,35 +2,35 @@
 
 Kuriş Kontraplak Fabrikası. Kartal, Devlet hastanesinin hemen yanında, Ankara Asfaltı üzerindeki bu fabrikada çalışan üyelerimizin toplu iş sözleşmesi müzakerelerinin kritik günleri. Bir Cumartesi günü, şubede yalnızım. Kuriş’in 4 temsilcisi sendikaya geldiler. Önümüzdeki Çarşamba günü sözleşme toplantısı var.
 
-Temsilciler çok kızgın Haydar başkana. “Asla o rakama sözleşmeyi imzalamayız. Haydar Atabay bizim sözleşmemize girmesin.” diyorlar.
+Temsilciler çok kızgın Haydar başkana. “Asla o rakama sözleşmeyi imzalamayız. Haydar Başkan bizim sözleşmemize girmesin.” diyorlar.
 
 Ben de “Pazartesi ya da Salı günü, İskender abiyi çağırın konuşun.” diyorum. Ben durumu Pazartesi İskender abiye anlatıyorum ama bu 4 temsilci, Salı günü İskender abi ile değil Haydar başkanla bir yemekli, içkili mekanda buluşup anlaşıyorlar. Ertesi günkü sözleşme oturumunda, temsilciler, kabul etmeyiz dedikleri rakama Haydar başkanla birlikte imza atıyorlar. İskender abi imzalamadan “Ben bu sözleşmeyi kabul etmiyorum.” diyerek kalkıyor masadan.
 
 Perşembe günü, şubede İskender abinin morali çok bozuk. Bir gün sonrasında bir yazı geliyor Kuriş’in 4 temsilcisinin imzasıyla “Biz temsilciler imzalanan sözleşmeyi kabul ediyoruz. Şubede kabul etmeyen varsa, gelsin işçilere anlatsın.” (Ben bu yazıyı, sendikadan ayrıldığım 2001 yılına kadar muhafaza etmiştim.)
 
-Bu yazı üzerine İskender abi “Ben gidip işçilerle konuşacağım.” diye tutturdu. Hayri abi ile birlikte çok ısrar ettik gitme diye. Bunun oyun olduğu, pusu olduğu o kadar belli ki. Tüm ısrarlarımıza rağmen gitti. Kurulmuş, örgütlenmiş işçilerin elinden zor kurtarmışlar İskender abiyi. Çok uzun süre baştemsilciye diş biledi İskender abi.
+Bu yazı üzerine İskender abi “Ben gidip işçilerle konuşacağım.” diye tutturdu. Hayri abi ile birlikte çok ısrar ettik gitme diye. Bunun oyun olduğu, pusu olduğu o kadar belli ki. Tüm ısrarlarımıza rağmen gitti. Kurulmuş, örgütlenmiş işçilerin elinden zor kurtarmışlar İskender abiyi. Çok uzun süre Kuriş temsilcilerine diş biledi İskender abi. Bu olayın ardından ilk temsilciler toplantısında İskender Alper ve İsmail Nalbantçı icra kurulundan istifa ettiler.
 
 Çok geçmeden de, Haydar başkan Ankara’ya çağırıldı Genel Merkez tarafından. Gidişinin akşamına doğru haber ulaştı şubeye.
 
-“Haydar Atabay’ın sendikayla ilişiği kesildi.”
+“Haydar Başkan’ın sendikayla ilişiği kesildi.”
 
 Büyük emeklerle elde ettiği itibarı, yine kendi elleriyle ve çok kolay harcamıştı Haydar başkan.
 
-Dönüşünün sabahı, şoför Hayri Ankara, karşıdan İskender’i, sonra Dörtyol’dan beni aldı, Fındıkzade’ye uğrayıp, devir teslim için Haydar Atabay’ı aldık. Aksaray’a doğru inerken “Koynumuzda beslediğimiz evlatlarımız bizim için mefta demişler. Canları sağolsun.” dedi üzüntülü ve sitemkar sesle. Bir şey anlamadım. Sormadım da. Sonradan anlaşıldı. Şöför Hayri abi, kimi görse “Haydar mefta oldu.” demiş. Çok kırılmış Haydar başkan.
+Dönüşünün sabahı, şoför Hayri Ankara, karşıdan İskender’i, sonra Dörtyol’dan beni aldı, Fındıkzade’ye uğrayıp, devir teslim için Haydar Başkan’ı aldık. Aksaray’a doğru inerken “Koynumuzda beslediğimiz evlatlarımız bizim için mefta demişler. Canları sağolsun.” dedi üzüntülü ve sitemkar sesle. Bir şey anlamadım. Sormadım da. Sonradan anlaşıldı. Şöför Hayri abi, kimi görse “Haydar mefta oldu.” demiş. Çok kırılmış Haydar başkan.
 …
 
-Çok kısa sürede, iş kolumuzda, bize rakip, Devas-İş diye bağımsız bir sendika kurdu Haydar Atabay. Bizden de irili ufaklı 3-4 işyerini kaptı.
+Çok kısa sürede, iş kolumuzda, bize rakip, Devas-İş diye bağımsız bir sendika kurdu Haydar Başkan. Bizden de irili ufaklı 3-4 işyerini kaptı.
 
-Bizdeki en büyük sıkıntı, Kartal’daki Adel Kalem fabrikasının temsilcisi Mürsel Taşçı’yı ikna etmekte oldu. Bir türlü ikna olmuyor Mürsel Taşçı “Bizim seçtiğimiz başkanı Genel Merkez nasıl görevden alır.” diye tepki gösteriyor ve Haydar Atabay’ın yanında yer alıyor. İskender Alper araya adamlar koyuyor ama nafile.
+Bizdeki en büyük sıkıntı, Kartal’daki Adel Kalem fabrikasının temsilcisi Mürsel Taşçı’yı ikna etmekte oldu. Bir türlü ikna olmuyor Mürsel Taşçı “Bizim seçtiğimiz başkanı Genel Merkez nasıl görevden alır.” diye tepki gösteriyor ve Haydar Başkan’ın yanında yer alıyor. İskender Alper araya adamlar koyuyor ama nafile.
 
 Mürsel Taşçı önemli. Çünkü Adel Kalem’de çalışanların neredeyse yarısı hemşerisi, hatta köylüsü, akrabası. Mürsel Taşçı da işyerinde sevilen, itibar edilen birisi. Mürsel giderse Adel Kalem de gider elden. Adel Kalem’de yaklaşık 500 üye var. Elka’dan sonra, örgütlü olduğumuz en büyük işyeri.
 
-Haydar Atabay’ın suçlu olduğuna, kovulmayı hak ettiğine inanmıyor telefondaki Mürsel Taşçı. İspat istiyor, kanıt istiyor. İskender abiye “Abi sahte evraklardan bahset” diyorum. Onlara da inanmıyor. “Gözlerimle görmeden inanmam.” diyor. “O zaman Ankara’ya, Genel Merkeze git gör” diyor İskender abi. “Giderim.” diyor Mürsel Taşçı. Ertesi gün Ankara’dan beklenen haber geliyor: “Mürsel Taşçı ikna oldu.”
+Haydar Başkan’ın suçlu olduğuna, kovulmayı hak ettiğine inanmıyor telefondaki Mürsel Taşçı. İspat istiyor, kanıt istiyor. İskender abiye “Abi sahte evraklardan bahset” diyorum. Onlara da inanmıyor. “Gözlerimle görmeden inanmam.” diyor. “O zaman Ankara’ya, Genel Merkeze git gör” diyor İskender abi. “Giderim.” diyor Mürsel Taşçı. Ertesi gün Ankara’dan beklenen haber geliyor: “Mürsel Taşçı ikna oldu.”
 
 Kısa süre sonra olağanüstü kongre yapılıyor ve İskender Alper Başkan, Mürsel Taşçı Sekreter, Elka’dan İsmail Nalbantçı Mali Sekreter oluyor.
 …
 
-Haydar Atabay’ın gönderilmesinden sonra, bir dönem Şube başkanlığı yapan İskender Alper, bir sonraki kongrede aday olmadı. Eşi Necmiye abla ile memleketi Datça’da yaşamayı seçtiler. O sıralarda ve daha sonraki senelerde çokça gittim Datça’ya. Oğlumun küçüklüğünde gittim, evlerinde misafir ettiler, yıllar sonra ailece bir kaç kez yine gittim. Her gittiğimde de uğradım İskender başkanın yanına. Necmiye ablamın kabak çiçeği dolması unutulmaz bir lezzet olarak kaldı damağımızda. Her zaman çok sıcak yakınlıklarını ilgilerini gördüm. Allah razı olsun.
+Haydar Başkan’ın gönderilmesinden sonra, bir dönem Şube başkanlığı yapan İskender Alper, bir sonraki kongrede aday olmadı. Eşi Necmiye abla ile memleketi Datça’da yaşamayı seçtiler. O sıralarda ve daha sonraki senelerde çokça gittim Datça’ya. Oğlumun küçüklüğünde gittim, evlerinde misafir ettiler, yıllar sonra ailece bir kaç kez yine gittim. Her gittiğimde de uğradım İskender başkanın yanına. Necmiye ablamın kabak çiçeği dolması unutulmaz bir lezzet olarak kaldı damağımızda. Her zaman çok sıcak yakınlıklarını ilgilerini gördüm. Allah razı olsun.
 
 Datça’ya yerleştikten sanıyorum iki sene sonra, bir gün şubeye geldi İskender abi. Datça’da sıkılmışlar, İstanbul’a dönmüşler tekrar. Şube’de yalnızdık sanıyorum. Bana sendikaya dönmek istediğini söyledi. Çok sevindim. Severim İskender abiyi. Heyecanlandım. Geldiklerinde önce Hayri abiye söyledim. O da sevindi ama “Mürsel istemez” dedi.
 “Neden?”

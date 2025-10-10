@@ -1,4 +1,4 @@
-# ADEL KALEM’DE TENSİKAT
+# ADEL KALEM’DE TENSİKAT (TOPLU İŞÇİ ÇIKARMA)
 
 Adel Kalem fabrikasında, neredeyse her ay 15-20 işçi işten çıkarılıyor. İşçi kadrosu 200’ün altına inmiş ama tensikat durmuyor bir türlü. Sendika olarak, işçi çıkarılmasını engelleyecek yasal bir gücümüz yok. Her defasında isyan ediyoruz ama nafile. Arada çok mağdur olabilecek 1-2 kişiyi listeden çıkartabilirsek mutlu oluyoruz.
 
